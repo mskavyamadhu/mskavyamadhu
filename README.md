@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on exciting open-source projects, especially in fintech, eCommerce, and tools that leverage the Angel Broking API.
 
-📫 How to reach me mskavyamadhu@gmail.com or drop a message here on GitHub.
+Reach me through mskavyamadhu@gmail.com or drop a message here on GitHub.
 
 😄 Pronouns: She/Her
 
